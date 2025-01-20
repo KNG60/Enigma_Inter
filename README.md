@@ -1,1 +1,1 @@
-wazne miasta jak **Warszawa Rzeszów **i** Skórcz**
+wazne miasta jak **Warszawa Rzeszów** i **Skórcz**
